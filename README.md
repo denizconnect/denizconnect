@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @denizconnect
 - 👀 I’m interested in dapps, VR and AR.
 - 🌱 I’m currently explore NFT. 
-- 💞️ I’m looking to collaborate on NFT market place.
+- 💞️ I’m looking to collaborate on any NFT project.
 - 📫 How to reach me denizhoti@gmail.com
 
 <!---
